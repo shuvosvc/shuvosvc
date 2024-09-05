@@ -14,7 +14,7 @@
 
 📫 **Dispatch a Raven to [5arafatshovo@gmail.com](mailto:5arafatshovo@gmail.com)** 🦅
 
-📄 **Embark on a Quest Through My Adventures [here](https://drive.google.com/file/d/1euNIYXAwwNYrtA3N-j5XYhVtSP-jclOt/view?usp=sharing)** 🗺️
+📄 **Embark on a Quest Through My Adventures [here](https://drive.google.com/file/d/1E4IztHTcxa-Mw8HYcv8rhkv_lrMdixTc/view?usp=sharing)** 🗺️
 
 ⚡ **Fun Fact: I'm a Traveling Enthusiast - Exploring Realms Both Digital and Physical** 🌍✈️
 
